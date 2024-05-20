@@ -1,1 +1,1 @@
-# chacharezkia.gothub.io
+# chac.gothub.io
